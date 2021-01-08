@@ -4,7 +4,7 @@
 
 For this project, you will be doing work that focuses on social impact.
 
-The prompts are there to help jump-start your ideation process. If you would like to change or combine prompts, that's fine! If you want to find your own idea, even better. **Consult your local instructor for final approval before getting started.**  
+The prompts are there to help jump-start your ideation process. If you would like to change or combine prompts, that's fine! If you want to find your own idea, even better. **Consult your instructor(s) for final approval before getting started.**  
 
 Remember to start with a good problem statement!
 
